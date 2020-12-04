@@ -1,1 +1,1 @@
-# https://linenakk.github.io/
+# https://linenakk.github.io/life1.github.io
